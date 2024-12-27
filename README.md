@@ -1,0 +1,1 @@
+#Temon kisu bolar nai
